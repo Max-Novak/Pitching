@@ -5,6 +5,8 @@ The zero to one  7 questions
 
 lean startup
 
+pathos, ethos, logos
+
 know your audience
 
 speaking and body language skills
